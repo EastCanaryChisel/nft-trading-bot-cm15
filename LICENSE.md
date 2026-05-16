@@ -1,4 +1,4 @@
-# 
+# exclusive NFT Floor Sweeper for nft trading bot | whitelist-bypass & flip-strategies offers the most advanced nft trading bot, with whitelist-bypass and flip-strategies. Ideal for
 
 
 
